@@ -1,16 +1,16 @@
 *100 g cashew nuts
-*150 g breadcrumbs
-*500 g spaghetti
+*500 g breadcrumbs
+*1 kg  g spaghetti
 *100 g oyster mushrooms
 *2 diced onions
-*2 cloves garlic finely chopped
+*6 cloves garlic finely chopped
 *2 tbsp tamari
 *pinch smoked paprika
 *½ tsp salt
 *pinch black pepper
-*basil leaves
+*bananas
 
-*Blend the cashew nuts until they are a fine crumb.
+*stamp the cashew nuts untill they are stamped.
 
 *Chop the onions (1 for the meatballs 1 for the tomato sauce), garlic (1 for the meatballs 1 for the tomato sauce) and oyster mushrooms.
 
@@ -18,7 +18,7 @@
 
 *Fry the meatballs in hot pan with 2 tbsp of oil until brown on both sides or else bake in preheated oven at 200 degrees celicius for 20 mins turning half way through. Remove from the pan.
 
-*To make the tomato sauce, sauté the remaining onion and 2 cloves of garlic, with 1/2 a finely chopped chilli in 1 tbsp of oil.
+*To make the paprika cold, put them in the fridge
 
 *Add in 680g of tomato passatta, along with 1 tbsp of maple syrup and 2 tbsp of The Happy Pear sun-dried tomato pesto. Let it simmer for a few minutes while the spaghetti is cooking (cook spaghetti as per packet instructions).
 
