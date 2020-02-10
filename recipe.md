@@ -4,6 +4,7 @@
 *100 g oyster mushrooms
 *2 diced onions
 *2 cloves garlic finely chopped
+*20 g nutella
 *2 tbsp tamari
 *pinch smoked paprika
 *½ tsp salt
@@ -23,4 +24,6 @@
 *Add in 680g of tomato passatta, along with 1 tbsp of maple syrup and 2 tbsp of The Happy Pear sun-dried tomato pesto. Let it simmer for a few minutes while the spaghetti is cooking (cook spaghetti as per packet instructions).
 
 *Sprinkle with basil leaves and nutritional yeast to serve.
+
+*Add the nutella, becouse everything is better with nutella
 
